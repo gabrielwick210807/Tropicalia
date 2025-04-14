@@ -1,2 +1,0 @@
-# Tropicalia
-Tropicali
